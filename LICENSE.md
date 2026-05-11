@@ -1,4 +1,4 @@
-#  
+#  enter brainrot heads new Script offers the most advanced enter brainrot heads Script, with auto-collect and teleport. Perfect for dominating any
 
 
 
